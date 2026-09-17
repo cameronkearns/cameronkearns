@@ -4,7 +4,7 @@ My name is Cameron, and I love to be creative, like making things even if it tak
 
 - 🔭 I’m currently working on creating my own website and portfolio 
 
-- 🌱 I’m currently learning level 3 creative computing year 2 course also i pass level 3 year 1 and level 2 creative computing course but in the past I have done T-level Transition. 
+- 🌱 I’m currently learning level 3 creative computing year 2 course also I pass level 3 year 1 and level 2 creative computing course but in the past I have done T-level Transition. 
 
 - 👯 I’m looking to collaborate on
 
